@@ -8,7 +8,7 @@
 
 🤝 **Collaboration:** I’m excited to team up on innovative projects, open-source contributions, and anything that pushes the boundaries of technology.
 
-📫 **Reach Me:** Feel free to connect with me here or drop me a message at clara@example.com!
+📫 **Reach Me:** Feel free to connect with me here or drop me a message at clarawhite1@gmail.com
 
 😄 **Pronouns:** She/Her
 
